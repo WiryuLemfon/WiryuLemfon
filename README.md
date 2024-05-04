@@ -5,8 +5,8 @@
 
 A seasoned Incident Response and DLP Analyst with a passion for defending organizations against complex cyber threats. With a Master of Science in Business Analytics from the University of Montana and ongoing CISSP certification, I am keen on leveraging my skills to enhance cybersecurity measures.
 
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fstock.adobe.com%2Fsearch%2Fimages%3Fk%3Dtechnical&psig=AOvVaw2eggXys7AnTgJLE6_VLiwD&ust=1714894941372000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCLjBwdC_84UDFQAAAAAdAAAAABAJ![image](https://github.com/WiryuLemfon/WiryuLemfon/assets/98377217/33e9a8f9-79d7-48b3-84f4-c97f7cfc52ba)
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fredmooncommunications.com%2Fwhy-technical-skills-are-essential-for-teachers%2F&psig=AOvVaw2eggXys7AnTgJLE6_VLiwD&ust=1714894941372000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCLjBwdC_84UDFQAAAAAdAAAAABAE![image](https://github.com/WiryuLemfon/WiryuLemfon/assets/98377217/7d9b7257-bbbc-4c63-917e-e15f32e730f0)
 
 
 🔧 
